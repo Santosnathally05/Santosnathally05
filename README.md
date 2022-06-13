@@ -1,10 +1,9 @@
 - 👋 OI meu nome e: @Santosnathally05
 - 👀 Tenho interesse em :entrar em uma area profocional 
 - 🌱 atualmente estou aprendendo :a programar sc
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ Eu gosto muito de jogar FF.8 ball pool  ,assistir coisa que me interessa e eu sei que vou usar la na frente 
+- 📫 COMO chegar ate mim:https://github.com/Santosnathally05/Santosnathally05/edit/main/README.md
+- 
 
-<!---
-Santosnathally05/Santosnathally05 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
+
